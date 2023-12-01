@@ -1,1 +1,1 @@
-https://qianbailu.github.io/k12301
+https://k12301.github.io
